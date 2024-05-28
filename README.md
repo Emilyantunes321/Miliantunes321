@@ -1,6 +1,6 @@
-### Boas vindas ao me perfil 
+### Boas vindas ao me perfil ❤
 
-Meu nome e Emily
+Meu nome e Emily✌
 
 -Estou estudando Alura
 
